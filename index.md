@@ -4,12 +4,12 @@
 Revised Thought Piece
 
 John Wilmot, Second Earl of Rochester, was never known for his spiritual or moral values. A sinner by trade, the majority of his poems left religion to the religious. However, in his poem “To The Postboy”, Rochester takes off his mask of drink and women and reveals a concern for his own mortality. With every line of the poem he slowly tears away at his libertine persona and exposes vulnerability and insecurity. It is speculated that Rochester converted to Christianity on his deathbed, but in reviewing this particular poem we see hints that perhaps religion was not a last minute choice for him, but instead a lengthier, more contemplated decision and this is something worthy of investigation. Through Rochester’s 
-###poem I will juxtapose a spectrum of versions using deformance to see the range from religious to libertine.
+#####poem I will juxtapose a spectrum of versions using deformance to see the range from religious to libertine.
 	
-###Through new media I will create juxtaposed version of the poem with systematic rule/rules that I will develop. These rules will be based on comparisons and patterns seen in other poetry of the period (libertine and religious poetry). Patterns I might use include word choice, rhyme, style and form. I will attempt to identify which of the deformed poems would be most believable as a Rochester poem. I will also provide all of the poems I used to construct my deformation criteria. 
+#####Through new media I will create juxtaposed version of the poem with systematic rule/rules that I will develop. These rules will be based on comparisons and patterns seen in other poetry of the period (libertine and religious poetry). Patterns I might use include word choice, rhyme, style and form. I will attempt to identify which of the deformed poems would be most believable as a Rochester poem. I will also provide all of the poems I used to construct my deformation criteria. 
 
 Some of the possible ingredients for my argument 
-###HTML
+#####HTML
  Markdown. The idea of making my reading of a poem more accessible to a wider audience is what principally influenced my decision concerning format. 
 
 
