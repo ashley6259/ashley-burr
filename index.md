@@ -2,6 +2,7 @@
 
 ##3 February, 2015
 Revised Thought Piece
+######(Text in bold has been revised)
 
 John Wilmot, Second Earl of Rochester, was never known for his spiritual or moral values. A sinner by trade, the majority of his poems left religion to the religious. However, in his poem “To The Postboy”, Rochester takes off his mask of drink and women and reveals a concern for his own mortality. With every line of the poem he slowly tears away at his libertine persona and exposes vulnerability and insecurity. It is speculated that Rochester converted to Christianity on his deathbed, but in reviewing this particular poem we see hints that perhaps religion was not a last minute choice for him, but instead a lengthier, more contemplated decision and this is something worthy of investigation. Through Rochester’s 
 #####poem I will juxtapose a spectrum of versions using deformance to see the range from religious to libertine.
