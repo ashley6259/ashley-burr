@@ -4,18 +4,13 @@
 
 ###Primary Sources 
 
-####Earl of Rochester, John Wilmot. "A Satyre against Reason and Mankind," Restoration 
-Literature An Anthology. Ed. Paul Hammond. New York: Oxford UP, 2009. 108. Print.
+####Earl of Rochester, John Wilmot. "A Satyre against Reason and Mankind," Restoration Literature An Anthology. Ed. Paul Hammond. New York: Oxford UP, 2009. 108. Print.
 
-####Earl of Rochester, John Wilmot. "The Fall: A Song." Restoration Literature An 
-Anthology. Ed. Paul Hammond. New York: Oxford UP, 2009. 108. Print.
+####Earl of Rochester, John Wilmot. "The Fall: A Song." Restoration Literature An Anthology. Ed. Paul Hammond. New York: Oxford UP, 2009. 108. Print.
 
-####Earl of Rochester, John Wilmot. "To the Postboy." Restoration Literature An Anthology. 
-Ed. Paul Hammond. New York: Oxford UP, 2009. 108. Print.
+####Earl of Rochester, John Wilmot. "To the Postboy." Restoration Literature An Anthology. Ed. Paul Hammond. New York: Oxford UP, 2009. 108. Print.
 
-####Earl of Rochester, John Wilmot. "Upon Nothing." Restoration Literature An Anthology. 
-Ed. Paul Hammond. New York: Oxford UP, 2009. 108. Print.
-
+####Earl of Rochester, John Wilmot. "Upon Nothing." Restoration Literature An Anthology. Ed. Paul Hammond. New York: Oxford UP, 2009. 108. Print.
 
 
 ###Secondary Sources 
