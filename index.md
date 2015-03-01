@@ -1,5 +1,24 @@
 # Ashley Burr's Log for English 507
 
+##3 March, 2015
+
+###A Libertine’s Faith: Using Deformation to Release the Meaning of John Wilmot’s “To the Postboy”
+
+John Wilmot, Second Earl of Rochester, was never known for his spiritual or moral values. A sinner by trade, the majority of his poems left religion to the religious. However, in his poem “To the Postboy”, Rochester takes off his mask of drink and women and reveals a concern for his own mortality. With every line of the poem he slowly tears away at his libertine persona and exposes vulnerability and insecurity. It is speculated that Rochester converted to Christianity on his deathbed, but in reviewing this particular poem we see hints that perhaps religion was not a last minute choice for him, but instead a lengthier, more contemplated decision and this is something worthy of investigation. Based on Lisa Samuels and Jerome McGann’s rules for deformance and interpretation, I will deform Rochester’s “To the Postboy” on a scale of more religious to more libertine. I will then assess how believable it would be that Rochester wrote each deformed poem, and what the varying degrees of believability say about “ To the Postboy”.
+
+There are two sets of rules that will be implemented for deformation. To deform the poem to a more libertine extreme the most used verbs and nouns from seven poems by Rochester have been assembled using Voyant. These poems have been classified as “Libertine Lyrics and Shorter Satires”, this classification is based on a structure created by Harold Love for his definitive edition of The Works of John Wilmot, Earl of Rochester (1999).
+
+The second set of rules have been implemented for the religious deformation of “To the Postboy” by taking the most frequently used nouns and verbs in The 1559 Book of Common Prayer (Booty). The reason for the use of this specific text is due to Nicholas Fisher’s research that concludes that Rochester, “in addition to absorbing religious thought patterns and turns of phrase through the practice of his mother, the regular and frequent exposure of Rochester as a child to the Bible and The Booke of Common Prayer of Queen Elizabeth undoubtedly provided him with a frame of reference and a vocabulary that he would continue to draw on as an adult” (Fisher 329).
+
+Ultimately, I hope to assess which deformed versions could most reasonably pass as a poem by Rochester. My working thesis will be that because “To the Postboy” can be easily and believably turned into a religious text Rochester had likely been contemplating a religious conversion far before his death in 1680.
+
+My essay will provide more evidence in the question of Rochester’s earnestness and coherence in his choice to convert to Christianity on his deathbed. The essay will not, however, prove Rochester’s sincerity in his conversion, but merely will provide more evidence of his religious contemplations.
+
+I am still unsure of how to deform the words of “To the Postboy”. I have my rules but do not know how to progressively change the poem more and more? Should I slowly add more changes? Or perhaps more intense words?
+
+This essay is intended for the Journal Restoration: Studies in English Literary Culture, 1660-1700.
+
+
 ##17 February, 2015
 
 ###Primary Sources 
