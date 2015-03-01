@@ -19,6 +19,19 @@ I am still unsure of how to deform the words of “To the Postboy”. I have my 
 This essay is intended for the Journal Restoration: Studies in English Literary Culture, 1660-1700.
 
 
+
+Work Cited
+
+Booty, John E. The Book of Common Prayer, 1559: The Elizabethan Prayer Book. Charlottesville: Published for the Folger Shakespeare Library by the UP of Virginia, 1976. Print.
+
+Earl of Rochester, John Wilmot. "To the Postboy." Restoration Literature An Anthology. Ed. Paul Hammond. New York: Oxford UP, 2009. 108. Print.
+
+Fisher, Nicholas. "'I Abhorr What I Soe Long Lov'd': An Exploration Of Rochester's 'Death Bed Repentance'." Seventeenth Century 25.2 (2010): 323-349. Art Source. Web. 5 Feb. 2015.
+
+Harold Love, ed. The Works of John Wilmot, Earl of Rochester by John Wilmot Rochester. Oxford: Oxford UP, 1999. Print.
+
+Samuels, Lisa, and Jerome McGann. "Deformance and Interpretation." New Literary History 30.1, Poetry & Poetics (1999): 25-56. JSTOR. Web. 15 Feb. 2015.
+
 ##17 February, 2015
 
 ###Primary Sources 
