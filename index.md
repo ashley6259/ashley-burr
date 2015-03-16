@@ -1,5 +1,302 @@
 # Ashley Burr's Log for English 507
 
+##17 March, 2015
+
+###The Data:
+
+1. Original
+
+Son of a whore, God damn you, can you tell
+A peerless peer the readiest way to hell?
+I've out-swilled Bacchus, sworn of my own make
+Oaths would fright Furies, and make Pluto quake;
+I've swived more whores more ways than Sodom's walls
+E'er knew, or the College of Rome's Cardinals:
+Witness heroic scars, Look here, ne'er go,
+Cerecloths and ulcers from the top to toe;
+Frighted at my own mischiefs I have fled,
+And bravely left my life's defender dead;
+Broke houses to break chastity, and dyed
+That floor with murder which my lust denied:
+Pox on it—why do I speak of these poor things;
+I have blasphemed my God and libelled kings:
+The readiest way to hell—come, quick, ne'er stir—
+Boy: The readiest way, my Lord, 's by Rochester.
+
+
+RELIGIOUS:
+
+1.1. Repeated Nouns Deformed to Create Religious 
+
+Son of a Christ, Father damn you, can you tell
+A peerless peer the readiest Lord to God?
+I've out-swilled Bacchus, sworn of my own make
+Oaths would fright Furies, and make Pluto quake;
+I've swived more Christs more Lords than Sodom's walls
+E'er knew, or the College of Rome's Cardinals:
+Witness heroic scars, Look here, ne'er go,
+Cerecloths and ulcers from the top to toe;
+Frighted at my own mischiefs I have fled,
+And bravely left my life's defender dead;
+Broke houses to break chastity, and dyed
+That floor with murder which my lust denied:
+Pox on it—why do I speak of these poor things;
+I have blasphemed my Father and libelled kings:
+The readiest Lord to God—come, quick, ne'er stir—
+Boy: The readiest Lord, my Lord, 's by Rochester.
+
+
+1.2. Repeated Nouns and Nouns with Sinful Associations Deformed to Create Libertine 
+
+Son of a Christ, Father damn you, can you tell
+A peerless peer the readiest Lord to God?
+I've out-swilled Day, sworn of my own make
+Oaths would fright Sonnes, and make Pluto quake;
+I've swived more Christs more Lords than Jesus’ walls
+E'er knew, or the College of Rome's Cardinals:
+Witness heroic scars, Look here, ne'er go,
+Cerecloths and man from the top to toe;
+Frighted at my own people I have fled,
+And bravely left my life's defender dead;
+Broke houses to break chastity, and dyed
+That floor with answers which my world denied:
+Life on it—why do I speak of these poor things;
+I have blasphemed my Father and libelled kings:
+The readiest Lord to God—come, quick, ne'er stir—
+
+
+2.1. Repeated Nouns and Verbs Deformed to Create Religious 
+
+Son of a Christ, Father damn you, can you tell
+A peerless peer the readiest Lord to God?
+I have out-swilled Bacchus, sworn of my own make
+Oaths would fright Furies, and make Pluto quake;
+I have swived more Christs more Lords than Sodom's walls
+E'er knew, or the College of Rome's Cardinals:
+Witness heroic scars, Look here, ne'er go,
+Cerecloths and ulcers from the top to toe;
+Frighted at my own mischiefs I have fled,
+And bravely left my life's defender dead;
+Broke houses to break chastity, and dyed
+That floor with murder which my lust denied:
+Pox on it—why do I speak of these poor things;
+I have blasphemed my Father and libelled kings:
+The readiest Lord to God—come, quick, ne'er stir—
+Boy: The readiest Lord, my Lord, 's by Rochester.
+
+
+2.2. Repeated Nouns, Verbs and Nouns/Verbs with Sinful Associations Deformed to Create Libertine 
+
+ Son of a Christ, Father shall you, can you tell
+A peerless peer the readiest Lord to God?
+I have heard Day, sworn of my own make
+Oaths would fright Sonnes, and make Pluto quake;
+I have said more Christs more Lords than Jesus’ walls
+E'er knew, or the College of Rome's Cardinals:
+Witness heroic scars, Look here, ne'er go,
+Cerecloths and man from the top to toe;
+Frighted at my own people I have fled,
+And bravely left my life's defender dead;
+Broke houses to break chastity, and dyed
+That floor with answers which my world denied:
+Life on it—why do I speak of these poor things;
+I have blasphemed my Father and libelled kings:
+The readiest Lord to God—come, quick, ne'er stir—
+Boy: The readiest Lord, my Lord, 's by Rochester.
+
+
+3.1. Repeated Nouns, Verbs and Adjectives Deformed to Create Religious 
+
+Son of a Christ, Father damn you, can you tell
+A peerless peer the holiest Lord to God?
+I have out-swilled Bacchus, sworn of my own make
+Oaths would fright Furies, and make Pluto quake;
+I have swived more Christs more Lords than Sodom's walls
+E'er knew, or the College of Rome's Cardinals:
+Witness heroic scars, Look here, ne'er go,
+Cerecloths and ulcers from the top to toe;
+Frighted at my own mischiefs I have fled,
+And bravely left my life's defender dead;
+Broke houses to break chastity, and dyed
+That floor with murder which my lust denied:
+Pox on it—why do I speak of these poor things;
+I have blasphemed my Father and libelled kings:
+The holiest Lord to God—come, quick, ne'er stir—
+Boy: The holiest Lord, my Lord, 's by Rochester.
+
+
+3.2. Repeated Nouns, Verbs, Adjectives and Nouns/Verbs with Sinful Associations Deformed to Create Libertine 
+
+Son of a Christ, Father shall you, can you tell
+A peerless peer the holiest Lord to God?
+I have heard Day, sworn of my own make
+Oaths would fright Sonnes, and make Pluto quake;
+I have said more Christs more Lords than Jesus’ walls
+E'er knew, or the College of Rome's Cardinals:
+Witness heroic scars, Look here, ne'er go,
+Cerecloths and man from the top to toe;
+Frighted at my own people I have fled,
+And bravely left my life's defender dead;
+Broke houses to break chastity, and dyed
+That floor with answers which my world denied:
+Life on it—why do I speak of these poor things;
+I have blasphemed my Father and libelled kings:
+The holiest Lord to God—come, quick, ne'er stir—
+Boy: The holiest Lord, my Lord, 's by Rochester.
+
+
+4.1. Repeated Nouns, Verbs, Adjectives and Adverbs Deformed to Create Religious 
+
+Son of a Christ, Father damn you, can you tell
+A peerless peer the readiest Lord to God?
+I have out-swilled Bacchus, sworn of my own make
+Oaths would fright Furies, and make Pluto quake;
+I have swived more Christs more Lords than Sodom's walls
+E'er knew, or the College of Rome's Cardinals:
+Witness heroic scars, Look here, ever go,
+Cerecloths and ulcers from the top to toe;
+Frighted at my own mischiefs I have fled,
+And bravely left my life's defender dead;
+Broke houses to break chastity, and dyed
+That floor with murder which my lust denied:
+Pox on it—why do I speak of these poor things;
+I have blasphemed my Father and libelled kings:
+The holiest Lord to God—come, quick, ever stir—
+Boy: The holiest Lord, my Lord, 's by Rochester.
+
+
+4.2. Repeated Nouns, Verbs, Adjectives, Adverbs and Nouns/Verbs with Sinful Associations Deformed to Create Libertine 
+
+Son of a Christ, Father shall you, can you tell
+A peerless peer the holiest Lord to God?
+I have heard Day, sworn of my own make
+Oaths would fright Sonnes, and make Pluto quake;
+I have said more Christs more Lords than Jesus’ walls
+E'er knew, or the College of Rome's Cardinals:
+Witness heroic scars, Look here, ever go,
+Cerecloths and man from the top to toe;
+Frighted at my own people I have fled,
+And bravely left my life's defender dead;
+Broke houses to break chastity, and dyed
+That floor with answers which my world denied:
+Life on it—why do I speak of these poor things;
+I have blasphemed my Father and libelled kings:
+The holiest Lord to God—come, quick, ever stir—
+Boy: The holiest Lord, my Lord, 's by Rochester.
+
+
+
+
+LIBERTINE:
+
+
+1. Repeated Nouns Deformed to Create Libertine 
+
+Son of a Wit, Death damn you, can you tell
+A peerless peer the readiest Time to Love?
+I've out-swilled Bacchus, sworn of my own make
+Oaths would fright Furies, and make Pluto quake;
+I've swived more Wits more Times than Sodom's walls
+E'er knew, or the College of Rome's Cardinals:
+Witness heroic scars, Look here, ne'er go,
+Cerecloths and ulcers from the top to toe;
+Frighted at my own mischiefs I have fled,
+And bravely left my life's defender dead;
+Broke houses to break chastity, and dyed
+That floor with murder which my lust denied:
+Pox on it—why do I speak of these poor things;
+I have blasphemed my Death and libelled kings:
+The readiest Time to Love—come, quick, ne'er stir—
+Boy: The readiest Time, my Lord, 's by Rochester.
+
+
+2. Repeated Nouns and Verbs Deformed to Create Libertine 
+
+Son of a Wit, Death damn you, can you tell
+A peerless peer the readiest Time to Love?
+I shall out-swill Bacchus, sworn of my own make
+Oaths would fright Furies, and make Pluto quake;
+I shall swive more Wits more Times than Sodom's walls
+E'er knew, or the College of Rome's Cardinals:
+Witness heroic scars, Look here, ne'er go,
+Cerecloths and ulcers from the top to toe;
+Frighted at my own mischiefs I have fled,
+And bravely left my life's defender dead;
+Broke houses to break chastity, and dyed
+That floor with murder which my lust denied:
+Pox on it—why do I speak of these poor things;
+I have blasphemed my Death and libelled kings:
+The readiest Time to Love—come, quick, ne'er stir—
+Boy: The readiest Time, my Lord, 's by Rochester.
+
+
+3. Repeated Nouns , Verbs and Adjectives Deformed to Create Libertine 
+
+Son of a Wit, Death damn you, can you tell
+A peerless peer the wisest Time to Love?
+I shall out-swill Bacchus, sworn of my own make
+Oaths would fright Furies, and make Pluto quake;
+I shall swive more Wits more Times than Sodom's walls
+E'er knew, or the College of Rome's Cardinals:
+Witness heroic scars, Look here, ne'er go,
+Cerecloths and ulcers from the top to toe;
+Frighted at my own mischiefs I have fled,
+And bravely left my life's defender dead;
+Broke houses to break chastity, and dyed
+That floor with murder which my lust denied:
+Pox on it—why do I speak of these poor things;
+I have blasphemed my Death and libelled kings:
+The wisest Time to Love—come, quick, ne'er stir—
+Boy: The wisest Time, my Lord, 's by Rochester.
+
+
+4. Repeated Nouns , Verbs, Adjectives and Adverbs Deformed to Create Libertine
+
+Son of a Wit, Death damn you, can you tell
+A peerless peer the wisest Time to Love?
+I shall out-swill Bacchus, sworn of my own make
+Oaths would fright Furies, and make Pluto quake;
+I shall swive more Wits more Times than Sodom's walls
+E'er knew, or the College of Rome's Cardinals:
+Witness heroic scars, Look here, best go,
+Cerecloths and ulcers from the top to toe;
+Frighted at my own mischiefs I have fled,
+And bravely left my life's defender dead;
+Broke houses to break chastity, and dyed
+That floor with murder which my lust denied:
+Pox on it—why do I speak of these poor things;
+I have blasphemed my Death and libelled kings:
+The wisest Time to Love—come, quick, best stir—
+Boy: The wisest Time, my Lord, 's by Rochester.
+
+###My Argument:
+John Wilmot, Second Earl of Rochester, projects a distinct duality of self within his poetry that both intersect and hide beneath one another. In particular, his poem “To the Postboy” demonstrates an inner conflict within the speaker (the speaker being specifically identified as Rochester). This text was not only easily and believably turned into a religious text through deformation, but it additionally resembles a repentance text. Due to the nature of the deformed versions of the poem, and the way in which these deformed poems illuminate the repentance in the original, it seems evident that Rochester’s remorse had been building. In conclusion, this adds to the argument the Rochester was both earnest and coherent in his choice to convert to Christianity on his deathbed in 1680, and furthermore that this had been a decision that Rochester had been contemplating throughout his  life.
+
+My essay will be published and discoverable. 
+
+My data will be provided.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 ##3 March, 2015
 
 ###A Libertine’s Faith: Using Deformation to Release the Meaning of John Wilmot’s “To the Postboy”
