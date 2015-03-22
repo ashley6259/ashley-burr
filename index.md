@@ -1,5 +1,11 @@
 # Ashley Burr's Log for English 507
 
+##24 March, 2015
+
+### Draft Introduction
+
+John Wilmot, Second Earl of Rochester, was never known for his spiritual or moral values. A sinner by trade, Rochester's poems usually shock readers with their graphic nature and pointed jabs. However, in his poem “To the Postboy”, Rochester takes off his mask of drink and women and reveals a concern for his own mortality. With every line of the poem he slowly tears away at his libertine persona and exposes vulnerability. Rochester converted to Christianity on his deathbed, a surprising choice due to his denouncing of religion in life. The sincerity of this conversion is often questioned; through close analysis of the form in particular, “To the Postboy” reveals that Rochester's turn to religion was not a last minute choice, but instead a lengthier, more contemplated decision. The first half of my argument will examine religious indicators in the language and meter of the poem. The second part of the argument will use deformance, a method coined by Lisa Samuels and Jerome McGann discussed in their article “"Deformance and Interpretation”, that works towards exposing the various layers of a text. Deformative critique is defined as either reordering, isolating, altering, or adding to a text, and through these changes the way the text is functioning is altered and therefore reveals the way the original text operates. By using deformation on Rochester’s “To the Postboy” to create a spectrum of texts from more religious to more libertine, the layers of this poem become clearer and re-iterate that Rochester felt great guilt for his sins. Ultimately, the multiple methods used to understand the pieces of fragmented self in “To the Postboy” demonstrate that Rochester had been contemplating a religious conversion far before his death in 1680.
+
 ##17 March, 2015
 
 ###The Data:
