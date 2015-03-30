@@ -28,37 +28,65 @@ The amazing thing that occurs with deformation is that you don't know what you'l
 #####Speaking Notes:
 
 -Samuels and McGann asks how one can “release or expose the poem’s possibilities of meaning?” (28) 
+
 -Deformation is born
+
 -We just read aloud the final results of my deformation of John Wilmot, the second earl of Rochester's poem "To the Postboy". 
+
 -Mahsa read the religious version 
+
 -Repeated Nouns, Verbs, Adjectives, Adverbs and Nouns/Verbs with Sinful Association.
+
 -Mathew read the extreme libertine version, 
+
 -Repeated Nouns , Verbs, Adjectives and Adverbs, 
+
 -I read original. 
+
 -Hearing them aloud demonstrates the similarities and differences that deforming a poem produces.
 	
+
 Why deformative critique?
+
 -fragmented self within his poetry. 
+
 -John Wilmot, the second earl of Rochester 
+
 -he had trauma, satire covering up honest worry
+
 -Wilmot denounced and criticized religion throughout his entire life, yet, on his deathbed converted to Christianity. 
+
 -There are countless questions of whether he was earnest and clear minded when he made this decision. 
 religious moments in this poem 
+
 -thesis is that Rochester's conversion was not only sincere, but was something he had been considering earlier on in his life. 
 
 -deformation needs rules to change the poem in s justifiable way 
+
 -My goal was to create a religious text and a more libertine text 
+
 -Libertine "one devoid of most moral restraints, which are seen as unnecessary or undesirable, especially one who ignores or even spurns accepted morals and forms of behaviour sanctified by the larger society" 
+
 -Defined Rochester in the 17th century
+
 -Used Voyage 
+
 -Explain voyage 
+
 -Libertine: most common words used in Rochester's libertine poetry 
+
 -Religious: most commonly used terms in The 1559 Book of Common Prayer,Rochester grew up reading it. 
+
 -Questions does the text translate into a religious text fluidly?
+
 - The answer is yes
+
 -Final versions of the poem made apparent the two sides of Rochester that surface in his writing. 
+
 -The religious text made me look at the original poem differently, 
+
 -A confession of his sins, having an overall sense of repentance.
+
 	
 Deformation = you don't know what you'll find. 
 When we approach a text we approach it with our personal biases, 
