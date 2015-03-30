@@ -1,5 +1,137 @@
 # Ashley Burr's Log for English 507
 
+##31 March, 2015
+
+###Panel Discussion
+####Defiling the Text: Deformance and Religion in Scripture, Prose and Poetry
+
+
+#####Abstract:
+
+Typically literary criticism sees the primary text as sacred: deformance seeks to break that paradigm. When Lisa Samuels and Jerome McGann wrote “Deformance and Interpretation,” they demonstrated how the deformed text can lead to a better understanding of the original, yet to highlight the work of deformance they used highly formalized poetry as examples. This panel’s three projects exhibit both the original procedures of Samuels and McGann while expanding beyond genre and technique. Ashley Burr, in her project “The Religious Libertine” uses the technique of substitution to create a spectrum of deformed versions of John Wilmot, Second Earl of Rochester's poem "To the Postboy" that range from spiritual to sinful. In a departure from formalized poetry, Mahsa Ebadpour's project “Some Like it Hot” uses alteration to deform the weather patterns of F Scott Fitzgerald’s The Great Gatsby and show how heat can kill and rain can save. Lastly, in a literal act of heresy, Matthew McBride’s “A Dark Tower” uses user gameplay to reorder the biblical verses from Genesis 11 to blur the line between user and God, the Word and code, and performance and deformance.
+
+#####Introduction  to Deformation:
+
+	Lisa Samuels and Jerome McGann wrote an article titled "Deformance and Interpretation". Their concept of Deformance is defined as changing a text in order to explore underlying meanings. There are four types of deformative methods described: reordering, isolating, altering and adding. 
+	They claim that when you change the text it changes the way it functions and you can then see a different side of the piece, which can provoke new questions. This method as proposed by Samuels and McGann is on poetry our group has stretched this critique to read further and use deformation for more than they originally suggested, using prose and scripture in addition to poetry.  All three of us have adapted this method in our own research in order to amplify our readings of various texts.
+
+
+
+#####My own work with Deformation:
+
+	Samuels and McGann asks how one can “release or expose the poem’s possibilities of meaning?” (28) and they answer this question through deformation. All three of us just read aloud the final results of my deformation of John Wilmot, the second earl of Rochester's poem "To the Postboy". Mahsa read the religious version of the poem, achieved through the deformation of Repeated Nouns, Verbs, Adjectives, Adverbs and Nouns/Verbs with Sinful Association. Mathew read the extreme libertine version, created through the deformation of the Repeated Nouns , Verbs, Adjectives and Adverbs, and I read the original. Reading aloud helps reiterate the similarities and differences that deforming a poem produces.
+	Using deformative critique as my method was ideal for this poem in particular because the author is known for having a sort of fragmented self within his poetry. John Wilmot, the second earl of Rochester had a lot of scandalous poetry about sex and drink, and yet when I first read his poem "To the Postboy" in my undergrad, I sensed there was more to this poem than met the eye. Wilmot denounced and criticized religion throughout his entire life, yet, on his deathbed converted to Christianity. There are countless questions of whether he was earnest and clear minded when he made this decision. I saw religious moments in his poem and wanted to explore this through the hypothesized thesis that Rochester's conversion was not only sincere, but was something he had been considering earlier on in his life. Through deformation I needed to establish logical rules in order to change the poem to a more religious text and a more libertine text, libertine being defined as "one devoid of most moral restraints, which are seen as unnecessary or undesirable, especially one who ignores or even spurns accepted morals and forms of behaviour sanctified by the larger society" (and Rochester commonly went hand in hand with this term throughout his life in the 17th century). To have a valid deformation you have to justify the process you are using. Voyage is an extremely handy website in which you can submit any text and it will list the most commonly used words, and upon your direction, leave out certain words such as "the", "I" ,"she", etc... For my project, I found the most common words used in Rochester's libertine poetry and I also found the most commonly used terms in The 1559 Book of Common Prayer, a text Rochester grew up reading. Overall I was attempting to see if the text translated into a religious text fluidly, and, if my original thoughts on the text were right, this poem may have more of a Christian edge than originally thought. The final versions of the poem made apparent the two sides of Rochester that surface in his writing. The religious text made me look at the original poem differently, seeing it as being a confession of his sins, having an overall sense of repentance.
+	The amazing thing that occurs with deformation is that you don't know what you'll find. When we approach a text we approach it with our personal biases as well, Deformance is a method to escape our preconceived notions and find out if our impressions of a text are justified.
+
+
+
+#####Speaking Notes:
+
+-Samuels and McGann asks how one can “release or expose the poem’s possibilities of meaning?” (28) 
+-Deformation is born
+-We just read aloud the final results of my deformation of John Wilmot, the second earl of Rochester's poem "To the Postboy". 
+-Mahsa read the religious version 
+-Repeated Nouns, Verbs, Adjectives, Adverbs and Nouns/Verbs with Sinful Association.
+-Mathew read the extreme libertine version, 
+-Repeated Nouns , Verbs, Adjectives and Adverbs, 
+-I read original. 
+-Hearing them aloud demonstrates the similarities and differences that deforming a poem produces.
+	
+Why deformative critique?
+-fragmented self within his poetry. 
+-John Wilmot, the second earl of Rochester 
+-he had trauma, satire covering up honest worry
+-Wilmot denounced and criticized religion throughout his entire life, yet, on his deathbed converted to Christianity. 
+-There are countless questions of whether he was earnest and clear minded when he made this decision. 
+religious moments in this poem 
+-thesis is that Rochester's conversion was not only sincere, but was something he had been considering earlier on in his life. 
+
+-deformation needs rules to change the poem in s justifiable way 
+-My goal was to create a religious text and a more libertine text 
+-Libertine "one devoid of most moral restraints, which are seen as unnecessary or undesirable, especially one who ignores or even spurns accepted morals and forms of behaviour sanctified by the larger society" 
+-Defined Rochester in the 17th century
+-Used Voyage 
+-Explain voyage 
+-Libertine: most common words used in Rochester's libertine poetry 
+-Religious: most commonly used terms in The 1559 Book of Common Prayer,Rochester grew up reading it. 
+-Questions does the text translate into a religious text fluidly?
+- The answer is yes
+-Final versions of the poem made apparent the two sides of Rochester that surface in his writing. 
+-The religious text made me look at the original poem differently, 
+-A confession of his sins, having an overall sense of repentance.
+	
+Deformation = you don't know what you'll find. 
+When we approach a text we approach it with our personal biases, 
+Deformance is a method to escape our preconceived notions and find out if our impressions of a text are justified.
+
+#####Discussion questions:
+
+Are there particular works that you could see yourself implementing deformation as method critique? Why would deformation suit that piece?
+Are there ways you can think of using deformation outside of what we have done?
+How do you feel about breaking the sacredness of the text by changing it? Is it damaging the text? 
+
+#####Script
+Ashley:
+1. Original
+
+Son of a whore, God damn you, can you tell
+A peerless peer the readiest way to hell?
+I've out-swilled Bacchus, sworn of my own make
+Oaths would fright Furies, and make Pluto quake;
+I've swived more whores more ways than Sodom's walls
+E'er knew, or the College of Rome's Cardinals:
+Witness heroic scars, Look here, ne'er go,
+Cerecloths and ulcers from the top to toe;
+Frighted at my own mischiefs I have fled,
+And bravely left my life's defender dead;
+Broke houses to break chastity, and dyed
+That floor with murder which my lust denied:
+Pox on it—why do I speak of these poor things;
+I have blasphemed my God and libelled kings:
+The readiest way to hell—come, quick, ne'er stir—
+Boy: The readiest way, my Lord, 's by Rochester.
+
+Mahasa:
+Son of a Christ, Father shall you, can you tell
+A peerless peer the holiest Lord to God?
+I have heard Day, sworn of my own make
+Oaths would fright Sonnes, and make Pluto quake;
+I have said more Christs more Lords than Jesus’ walls
+E'er knew, or the College of Rome's Cardinals:
+Witness heroic scars, Look here, ever go,
+Cerecloths and man from the top to toe;
+Frighted at my own people I have fled,
+And bravely left my life's defender dead;
+Broke houses to break chastity, and dyed
+That floor with answers which my world denied:
+Life on it—why do I speak of these poor things;
+I have blasphemed my Father and libelled kings:
+The holiest Lord to God—come, quick, ever stir—
+Boy: The holiest Lord, my Lord, 's by Rochester.
+
+4.Mathiun:
+Son of a Wit, Death damn you, can you tell
+A peerless peer the wisest Time to Love?
+I shall out-swill Bacchus, sworn of my own make
+Oaths would fright Furies, and make Pluto quake;
+I shall swive more Wits more Times than Sodom's walls
+E'er knew, or the College of Rome's Cardinals:
+Witness heroic scars, Look here, best go,
+Cerecloths and ulcers from the top to toe;
+Frighted at my own mischiefs I have fled,
+And bravely left my life's defender dead;
+Broke houses to break chastity, and dyed
+That floor with murder which my lust denied:
+Pox on it—why do I speak of these poor things;
+I have blasphemed my Death and libelled kings:
+The wisest Time to Love—come, quick, best stir—
+Boy: The wisest Time, my Lord, 's by Rochester.
+
+
+Ashley Burr
+Mahsa Ebadpour
+Matthew McBride
+
 ##24 March, 2015
 
 ### Draft Introduction
@@ -474,23 +606,6 @@ John Wilmot, Second Earl of Rochester, projects a distinct duality of self withi
 My essay will be published and discoverable. 
 
 My data will be provided.
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 
 
 
